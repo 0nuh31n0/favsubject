@@ -1,0 +1,1 @@
+Link : https://fav.tak17mei.itmajakas.ee/api.php
